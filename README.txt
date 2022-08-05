@@ -12,23 +12,4 @@ here is your first clue: go into the NEWEST directory (ooni ke ba'd az hame sakh
 
 i add a "$" just for a test
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+this is my life and i work hard for it 
